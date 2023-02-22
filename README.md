@@ -1,0 +1,2 @@
+# hozuak
+Mavi tik
